@@ -1,4 +1,4 @@
-**Hello and welcome on my Github page! 👋✨**
+**Hello and welcome to my Github page! 👋✨**
 
 I haven't much to introduce myself yet...
 
